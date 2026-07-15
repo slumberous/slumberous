@@ -1,7 +1,8 @@
 <div align="center"> <img src="https://komarev.com/ghpvc/?username=crunchpaw&label=　　views　♪　&color=000000&style=plastic" alt="crunchpaw" />
   
 # <div align="center"> 𝒮ylvester　(⚬ᵔoᵔ⚬)
-<div align="center"><img width="30" height="30" alt="Untitled669_20260714234826" src="https://github.com/user-attachments/assets/8f4a5f48-1832-4db4-a91d-1f5a35e7e415" /> 608 likes ♡　45 posts ≡
+　<div align="center"><img width="30" height="30" alt="Untitled669_20260714234826" src="https://github.com/user-attachments/assets/8f4a5f48-1832-4db4-a91d-1f5a35e7e415" /> [<img width="100" height="20" alt="Untitled664_20260715015442" src="https://github.com/user-attachments/assets/003c13f6-ee90-4582-80bf-ab8905b48511" />](https://mugged.atabook.org/)
+
 
 <div align="center"><img width="30" height="30" alt="Untitled669_20260714234832" src="https://github.com/user-attachments/assets/c13f0d4b-a2fe-40be-bb89-fe1bfa6170a5" /> 　status:　　　𝗼𝗻𝗹𝗶𝗻𝗲 🎮
   
