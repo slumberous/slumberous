@@ -10,7 +10,12 @@
   <div align="center"> <img width="140" height="170" alt="Untitled676_20260715000213" src="https://github.com/user-attachments/assets/d622e2f2-6c0c-49b8-bcaf-3315161fa85b" />
 　<img width="80" height="200" alt="Untitled675_20260714234755" src="https://github.com/user-attachments/assets/4467f1cc-3b75-44a2-baeb-5d3fac4b0f3f" />
 
-> hii lovelies, gentle boundary, __iwc__ if you're _under 14_ thank you ♡♡
+> hii lovelies, some gentle boundaries I need to set,
 
+> __iwc__ if you're _under 14_ thank you ♡♡
+
+> __protree__ refrain from interacting please, I don't feel comfortable with you guys!
+
+> don't bring up any *sensitive topics* with me, I find it unnecessary.
 
 # ‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿
