@@ -15,8 +15,8 @@
 
 > __iwc__ if you're _under 14_ thank you ♡♡
 
-> __protree__ refrain from interacting please, I don't feel comfortable with you guys!
+> __protree__ refrain from interacting please, I won't int back ^_^💧
 
-> don't bring up any *sensitive topics* with me, I find it unnecessary.
+> that'll be all, thank you for reading♪
 
 # ‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿
