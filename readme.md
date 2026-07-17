@@ -17,6 +17,8 @@
 
 > __protree__ refrain from interacting please, I won't int back ^_^💧
 
+> → I won't be involved with any arguments regardless if I'm a witness!!!! ←
+
 > that'll be all, thank you for reading♪
 
 # ‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿
